@@ -18,4 +18,4 @@ If you are being harassed, notice that someone else is being harassed, or have a
 
 We expect participants to follow these rules at any related social events.
 
-(Adapted from http://confcodeofconduct.com/)
+(Adapted from http://confcodeofconduct.com/) 
